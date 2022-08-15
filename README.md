@@ -1,1 +1,1 @@
-# Logo-Adidas
+# Logo Adidas
